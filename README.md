@@ -5,9 +5,9 @@ Mahasiswi Universitas Tarumanagara yang suka dunia desain, storytelling, dan kol
 ## Tentang Aku
 
 - 🎓 Mahasiswi S1 Universitas Tarumanagara
-- 🎨 Fokus: komunikasi visual & desain
+- 🎨 Fokus: komunikasi, desain
 - 📍 Domisili: Jakarta
-- 🌟 Minat: desain poster, fotografi, public speaking
+- 🌟 Minat: desain poster, data analis
 
 ## Apa yang Lagi Aku Kerjakan
 
