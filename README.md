@@ -17,7 +17,7 @@ Mahasiswi Universitas Tarumanagara yang suka dunia desain, storytelling, dan kol
 
 ## Bisa Kolaborasi?
 
-- 📧 Email: feliciaangeline007@email.com
+- 📧 Email: feliciaangeline007@gmail.com
 - 📷 Instagram: @feliciaangeline.id
 - 💼 LinkedIn: -
 
